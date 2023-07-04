@@ -14,5 +14,15 @@ Personal growth can also tie into how we respond to the world around us. If we w
 
 Remember : there are no unimportant [[Cards/Missing Puzzle Pieces\|missing puzzle pieces]].
 
+Ideas to explore:
+Scarcity vs. Abundance Mindsets
+- Scarcity leads to fear
+Living fearlessly
+Knowing not just who you are, but whose you are
+Be still and know that He is God
+- Listening prayer
+- Is meditation consistent with Christianity?
+
+
 ---
 Related:  [[Facing the world today\|Facing the world today]], [[Inbox/Becoming a writer\|Becoming a writer]]
