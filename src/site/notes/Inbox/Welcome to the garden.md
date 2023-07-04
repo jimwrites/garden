@@ -15,4 +15,4 @@ There is no "starting here" link. Jump in wherever it looks interesting.
 
 [[Leadership\|Leadership]]
 
-[[Christian Stoic\|Christian Stoic]]
+[[Inbox/Christian Stoic\|Christian Stoic]]
