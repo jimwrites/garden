@@ -3,7 +3,7 @@
 ---
 
 ## Identity and personal growth
-[[Cards/identity\|identity]]
+[[Cards/identity\|identity]], [[Cards/personal growth\|personal growth]]
 
 This is an area that really resonates with me. I need to drill down and see where I see this potentially going.
 
