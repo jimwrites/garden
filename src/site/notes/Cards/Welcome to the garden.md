@@ -15,6 +15,10 @@ The graph to the right is a visual representation of how the notes link together
 
 [[Cards/Identity and personal growth\|Identity and personal growth]]
 
+[[Cards/identity\|identity]]
+
+[[Cards/personal growth\|personal growth]]
+
 [[Cards/Leadership\|Leadership]]
 
 [[Cards/Christian Stoic\|Christian Stoic]]
