@@ -8,7 +8,7 @@ Every piece is important. A piece that is not connected does not reflect that im
 
 [[Sources/Scripture (WEB)/43 - John/John-15#v4\|John-15#v4]] says we need to be connected.
 
-This ties to the idea of [[identity\|identity]], and the thought that we live out our identity in community. No piece of the puzzle functions alone.
+This ties to the idea of [[Cards/identity\|identity]], and the thought that we live out our identity in community. No piece of the puzzle functions alone.
 
 
 
