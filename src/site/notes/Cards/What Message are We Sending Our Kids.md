@@ -2,9 +2,11 @@
 {"dg-publish":true,"permalink":"/cards/what-message-are-we-sending-our-kids/"}
 ---
 
-For years now I have been saying that how we talk about problems, and the way we say is matters. That is why this blog exists. I want to work toward getting to the root of problems that are causing so much disunity in our society today. That’s why I believe it’s critical that we get beyond symptoms and look for causes.
+For years now I have been saying that how we talk about problems, and the way we say is matters. That's why I got started as a writer.
 
-I have been reading Thomas Sowell’s book [Discrimination and Disparities](https://amzn.to/38WJgDu), which looks at economic disparities among different groups, many which have nothing to do with discrimination. In this book he makes the comment, “…how people are raised can affect how they turn out as adults.” To which I shouted (in my mind) **“Yes! That’s what I have been saying!”**
+I want to work toward getting to the root of problems that are causing so much disunity in our society today. It’s why I believe it is critical that we get beyond symptoms and look for causes.
+
+I was reading Thomas Sowell’s book [Discrimination and Disparities](https://amzn.to/38WJgDu), which looks at economic disparities among different groups, many which have nothing to do with discrimination. In this book he makes the comment, “…how people are raised can affect how they turn out as adults.” To which I shouted (in my mind) **“Yes! That’s what I have been saying!”**
 
 ### We’re a Product Of Our Upbringing
 
