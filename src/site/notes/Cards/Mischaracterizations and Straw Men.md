@@ -10,13 +10,11 @@ My first reaction was that this greatly mischaracterizes the arguments by those 
 
 The thing is, I don’t know anyone that this really describes. Yes, I know they exist, but the truth is, they’re somewhat of a rare bird. This argument creates a [straw man](https://owl.excelsior.edu/argument-and-critical-thinking/logical-fallacies/logical-fallacies-straw-man/), and then attacks that straw man as if it represents everyone with a differing opinion. But it's not based in reality. There are a lot of people that hold differing opinions, for many different reasons.
 
-The people that I know that have a problem with CRT, especially with its influence in the church, are very much invested in true equality, they are just in disagreement on some very key issues.
+The people that I know that take issue with CRT, especially with its influence in the church, are very much invested in true equality, they are just in disagreement on some very key issues.
 
-As I thought about it a little more, there was another issue that came up for me, the idea that we don't need to clarify definitions.
+As I thought about it a little more, there was another issue that came up for me, the idea that we no longer feel the need to clarify definitions.
 
-Words have meanings, and for good reason. If we want to be precise in our language (and we should), and if we want to be understood (and we should) then we need to use words as they were intended. Because when you decide to change the meaning of a word mid stream, the word loses some of it’s relevance. It creates confusion and misunderstandings if I use a word based on it’s old definition, and you use the same word with a different definition.
-
-And I don’t think this is merely arguing semantics. I think Christians are in agreement that racism is sin. Are we now arguing that only those in the majority can be guilty of this particular sin? Is everyone else absolved of sin by simply shifting the definition? Even more troubling is the idea that you are guilty of this sin based solely on the color of your skin. In another time that notion would have been considered racist, you know, back before we started redefining terms.
+Words have meanings, and for good reason. If we want to be precise in our language (and we should), and if we want to be understood (and we should) then we need to use words as they were intended. Because when you decide to change the meaning of a word mid stream, the word loses some of it’s relevance. If I use a word based on it’s old definition, and you use the same word with a different definition, it creates confusion and misunderstandings.
 
 I thinks it’s also important to address the issue of Marxism, and how it aligns with the word of God. Are we, as believers called to unite, or are we to fracture based on ever changing identities? Is it a Biblical concept that we divide into teams, continually pointing accusatory fingers, and fracturing along lines between alleged oppressed and oppressors?
 
