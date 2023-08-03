@@ -2,11 +2,11 @@
 {"dg-publish":true,"permalink":"/cards/jesus-was-not-a-socialist/"}
 ---
 
-Every now and again I see a couple of memes go around, and it drives me crazy every time I see them. There are a couple of variations, but the gist is, Jesus was a socialist, and Jesus was homeless (which I'll get to in my [next post](https://www.jimsmoot.com/jesus-was-not-homeless/)).
+Every now and again I see a couple of memes go around, and it drives me crazy every time I see them. There are a couple of variations, but the gist is, Jesus was a socialist, and Jesus was homeless (which I'll get to shortly).
 
-I think what really gets to me is, the memes are both an effort to recreate God in our image.
+I think what really gets to me is, the narratives are both an effort to recreate God in our image.
 
-First off, I'm not a Biblical scholar, but from what I do know I somehow don't think Jesus would be down with having people use him to promote a political philosophy. He doesn't really strike me as a big supporter of government, or the control over people those governments imposed on people.
+First off, I'm not a Biblical scholar, but from what I do know, I somehow don't think Jesus would be down with having people use him to promote a political philosophy. He doesn't really strike me as a big supporter of government, or the control those governments imposed on people.
 
 So, let's take a look at this claim, and why I believe it's completely off base.
 
@@ -22,9 +22,11 @@ While Jesus was very clear that we should help each other out, there isn't anywh
 
 And Christ doesn't appear to be against individuals owning property. Several times in his parables he spoke of land owners and home owners. I don't recall any of those parables where he condemned anyone for owning property. In fact, in at least one parable the hero of the story was the man that invested his money wisely, and increased his holdings.
 
-Also, the whole "Render unto Caesar" thing, Jesus is clearly saying to do your civic duty and pay the government what they demand. It is not a call to give everything you have to the government. As an interesting side note, one of the charges levied against Jesus by the Jewish authorities when they were trying to get him crucified was promoting tax evasion ([Luke 23:2](https://www.biblegateway.com/passage/?search=Luke+23%3A2&version=ESV))
+Also, the whole "Render unto Caesar" thing. Jesus is clearly saying to do your civic duty and pay the government what they demand. It is not a call to give everything you have to the government. As an interesting side note, one of the charges levied against Jesus by the Jewish authorities when they were trying to get him crucified was promoting tax evasion ([Luke 23:2](https://www.biblegateway.com/passage/?search=Luke+23%3A2&version=ESV))
 
-It might surprise some people to find out that the Bible doesn't come out against money, or owning property. It does condemn greed. And it warns against the evil of loving money, and of putting money above God, but it seems to treat money as what it is, a tool to be used.
+It might surprise some people to find out that the Bible doesn't come out against money, or owning property. It does condemn greed. And it warns against the evil of loving money, and of putting money above God.  
+
+It seems to treat money as what it is, a tool to be used for helping others.
 
 The Bible also clearly speaks out against envy, and about coveting what others have. I'm just gonna leave that there for you to think about.
 
