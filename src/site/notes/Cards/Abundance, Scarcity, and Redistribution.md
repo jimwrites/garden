@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/cards/abundance-scarcity-and-redistribution/"}
 ---
 
-I’ve been thinking a lot lately about the difference between a scarcity mindset and an abundance mindset.I really see this playing out in the discussions about redistribution policies (ie. Increase the taxes on the rich to pay for free services for lower income).
+I’ve been thinking a lot lately about the difference between a scarcity mindset and an abundance mindset. I really see this playing out in the discussions about redistribution policies (ie. Increase the taxes on the rich to pay for free services for lower income).
 
 What I’ve noticed is, how you view the world influences what side you land on with a lot of social issues.
 
