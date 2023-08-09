@@ -17,4 +17,4 @@ Part of the problem is, we have gotten so lot in our team identity, that we no l
 And until we can figure out who we are as individuals, we will always be lost in the team identity.
 
 
-Related: [[Inbox/for some people right and wrong aren’t overly important\|for some people right and wrong aren’t overly important]], [[Cards/identity\|identity]]
+Related: [[Cards/for some people right and wrong aren’t overly important\|for some people right and wrong aren’t overly important]], [[Cards/identity\|identity]]
