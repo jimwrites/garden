@@ -18,7 +18,7 @@ Then there’s Roberto Alomar. I first heard of Alomar when he was playing for t
 
 A similar scenario gets played out every day on social media. President Trump is regularly condemned for doing things previous presidents were praised for, and praised for doing things his predecessor was attacked for doing. Why? Because one is a Republican and one is a Democrat. Now we’re preparing for a Joe Biden administration, and Biden will use the same tools and wield the same power that Trump had access to. And we can all predict what’s going to happen. The Democrats will praise President Biden’s every move, while the Republicans will gleefully treat him with disrespect and disdain.
 
-This is not a discussion about whether the actions of one or the other is right or wrong. The point is that [[Inbox/for some people right and wrong aren’t overly important\|for some people right and wrong aren’t overly important]]. What’s important is not only that my team wins, but your team has to lose!
+This is not a discussion about whether the actions of one or the other is right or wrong. The point is that [[Cards/for some people right and wrong aren’t overly important\|for some people right and wrong aren’t overly important]]. What’s important is not only that my team wins, but your team has to lose!
 
 
 Related: [[Cards/social justice\|social justice]], [[Cards/Justice\|Justice]]
