@@ -20,7 +20,7 @@ To start out I think we need to define our terms. For that, let’s turn to our 
 
 #### Individual vs. Group Justice
 
-Part of my problem is one form looks at justice for the individual, while the other looks at justice for a group. As a guy that really would like to see more unity I have a problem with the ongoing effort to divide us into different [[teams\|teams]]. Whether it’s by race, or gender, or social class the division is ongoing. It’s the oppressors vs the oppressed. The “haves” vs the “have-nots.” 
+Part of my problem is one form looks at justice for the individual, while the other looks at justice for a group. As a guy that really would like to see more unity I have a problem with the ongoing effort to divide us into different [[Cards/teams\|teams]]. Whether it’s by race, or gender, or social class the division is ongoing. It’s the oppressors vs the oppressed. The “haves” vs the “have-nots.” 
 
 Look, I understand the past oppressions that have occurred and how they affect the current population. I’ve written about it before. But you cannot commit an injustice against one person or group in order to “correct” a past injustice to another person or group. That’s not justice, especially if the person you are wronging was not involved in the original injustice.
 
