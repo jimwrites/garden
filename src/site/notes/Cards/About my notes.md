@@ -14,7 +14,7 @@ By posting it here I am making an attempt to [work with the garage door open](ht
 #### Notes start out small
 Many of the notes I take start out as seeds that will develop over time. These should be atomic notes, that are focused on one idea. Over time these ideas will link to other notes, and the knowledge base will grow.
 
-#### Note should be linked
+#### Notes should be linked
 Much of the structure from this site will come from links between notes. This will help me think through how I can make the associations between ideas
 
 #### Initial structure is minimal
