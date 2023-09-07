@@ -25,4 +25,4 @@ But the real problem is a knowledge problem. **No one person or committee has an
 [I have a lot more to say on this](http://www.jimsmoot.com/minimum-wage-and-the-knowledge-problem/), but I think that's enough to at least start the discussion.
 
 
-Related: [[Cards/Economics\|Economics]], [[Cards/libertarian\|libertarian]], [[Your wallet influences your ethics\|Your wallet influences your ethics]]
+Related: [[Cards/Economics\|Economics]], [[Cards/libertarian\|libertarian]], [[Cards/Your wallet influences your ethics\|Your wallet influences your ethics]]
