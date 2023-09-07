@@ -12,7 +12,7 @@ The beauty of it all is, you are in charge of designing, and building, the perso
 
 And while we can't change anything in our past, or change our decisions and the resulting outcomes, that doesn't means we shouldn't look back. When it comes to [[Cards/personal growth\|personal growth]], your memory is a great tool. 
 
-Rather than looking back in regret, we should look back to learn what did and didn't work for us, so we can act differently going forward. Our memory wasn't designed so you can beat yourself up about the past. [[Our memory is a tool to help us grow\|Our memory is a tool to help us grow]].
+Rather than looking back in regret, we should look back to learn what did and didn't work for us, so we can act differently going forward. Our memory wasn't designed so you can beat yourself up about the past. [[Cards/Our memory is a tool to help us grow\|Our memory is a tool to help us grow]].
 
 ### You have the tools you need
 
