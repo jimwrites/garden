@@ -42,4 +42,4 @@
 -   Listen to anyone that can contribute to the public good
 
 [[Cards/Stoicism\|Stoicism]]
-[[Marcus Aurelius\|Marcus Aurelius]]
+[[Cards/Marcus Aurelius\|Marcus Aurelius]]
