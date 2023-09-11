@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/jesus-was-not-a-socialist/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 Every now and again I see a couple of memes go around, and it drives me crazy every time I see them. There are a couple of variations, but the gist is, Jesus was a socialist, and Jesus was homeless (which I'll get to shortly).
 
 I think what really gets to me is, the narratives are both an effort to recreate God in our image.
