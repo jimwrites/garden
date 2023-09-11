@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/cards/important-traits-of-marcus-aurelius/"}
 ---
 
+#🌱Seedling 
+
 -   Character
 -   Self-Control
 -   Integrity
