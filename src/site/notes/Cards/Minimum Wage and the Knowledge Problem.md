@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/minimum-wage-and-the-knowledge-problem/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 In my [previous post](http://www.jimsmoot.com/thinking-about-the-minimum-wage/) I wrote about my feelings that the government should not be over-stepping their responsibilities by mandating a minimum wage. Honestly, I think that economists have made a pretty convincing argument that we should do away with all minimum wages, and allow the market to dictate prices, but I also understand that is never going to happen. 
 
 Those in power don’t have a good track record of giving power back once they’ve gotten it, and the people that don't understand the economics of it have very loud voices.
