@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/the-broken-window-theory-and-the-american-church/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 There is a thing in criminal justice called the “Broken Window” theory. The thought behind it is that if a broken window in a house is left unfixed it sends a message that no one cares, or that the house is abandoned. Soon other windows in the house will be broken. If the problem is still not addressed broken windows will begin appearing in other houses in the neighborhood. If this is not fixed the message gets sent that the people in the neighborhood either don’t care, or are afraid to report the problem. The result is that crime will soon go up; first petty crime, followed quickly by muggings, assault, and murder.
 
 History has shown that one of the more effective ways of combating the rampant crime in an area is to start by cracking down on misdemeanor crimes, crimes that would in the past be ignored because there were more pressing problems. Before too long after cracking down on petty crimes the bigger crime rates begin to drop significantly.
@@ -18,7 +21,7 @@ We have gotten very good at overlooking our petty sins. We do things, and behave
 
 The bad part is, as we make those excuses we send the message to ourselves and those around us that this behavior is OK, and so there isn’t any reason to stop. And if I can act however I want and still call myself a Christian, then there really isn’t anything someone else does that can’t also be justified.
 
-And in an effort to appear loving and accepting (you know, love the sinner but hate the sin) we have also given up our heart for pointing out sin, even when the Bible does so. We soften the hard parts of scripture, and [[Inbox/Making God in our image\|we try to mold God]] into a being that will accept us, warts and all, without our ever having to make any effort to conform to his will.
+And in an effort to appear loving and accepting (you know, love the sinner but hate the sin) we have also given up our heart for pointing out sin, even when the Bible does so. We soften the hard parts of scripture, and [[Cards/Making God in our image\|we try to mold God]] into a being that will accept us, warts and all, without our ever having to make any effort to conform to his will.
 
 ### Change starts with me
 
