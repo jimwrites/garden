@@ -2,7 +2,8 @@
 {"dg-publish":true,"permalink":"/cards/what-i-feel-about-social-issues-isn-t-relevant/"}
 ---
 
-:Subtitle:
+#🌲Evergreen 
+#posted 
 
  
 There was a Pride event in our town yesterday. I was asked “How do you feel about that?” It’s not the first time I have been asked. The question typically comes from someone with liberal-leaning beliefs, people that know I am a more conservative leaning Christian. These are folks that already have a pretty good idea of what I believe. When the question came, I couldn’t feeling that I was being baited.
