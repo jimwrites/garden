@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/cards/it-s-all-about-what-team-you-re-on/"}
 ---
 
+#🌲Evergreen 
+#posted
 #### White is not a person. Black is not a person.
 
 Those are teams we identify with. Jim is a person. Mike is a person. Julie is a person. When you think of team first you find yourself defending your team. When you think people first you make more efforts toward unity. This is true in race relations, politics, sports, and many other areas of our lives.
@@ -22,3 +24,5 @@ This is not a discussion about whether the actions of one or the other is right 
 
 
 Related: [[Cards/social justice\|social justice]], [[Cards/Justice\|Justice]]
+
+
