@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/thinking-about-the-minimum-wage/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 I got into a brief Twitter discussion a while back about tipping. The conversation started with whether or not restaurants should be forced to pay servers a “living wage” and end the practice of tipping. The encounter was just a few friendly tweets back and forth, but it got me thinking (like it always does), about the bigger issue of artificially setting economic floors and ceilings on business and people.
 
 First, as a former food service worker, I can tell you that a lot of servers would not want to be doing that job without tips. In busy mid-range or higher end restaurants tips far exceed what servers would earn on an hourly wage. It would also remove some of the incentives for servers to work as hard as they do. If I wasn’t earning tips, why should I be overly concerned if your coffee cup was sitting empty. As long as I can get me side-work done, do enough to keep the boss off my back, and clock out on time…it’s all good.
