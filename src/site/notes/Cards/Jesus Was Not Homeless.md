@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/jesus-was-not-homeless/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 I want to follow up on what I started last week in my [last post](https://www.jimsmoot.com/jesus-was-not-a-socialist/) with the second part of a big pet-peeve of mine.
 
 On a regular basis I see people posting that Jesus was homeless. Sorry, but believing that requires a total disregard for what the Bible actually says.
