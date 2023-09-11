@@ -2,7 +2,8 @@
 {"dg-publish":true,"permalink":"/cards/your-wallet-influences-your-ethics/"}
 ---
 
-:Subtitle:
+#🌲Evergreen 
+#posted 
 
 ### Premise
 
@@ -31,5 +32,3 @@ But when it comes to digging into our own wallets to make that change happen...
 Because moneys tight, and seems to be getting tighter. It's hard to justify spending more to support the local farm or the locally owned business when I know I can stretch that dollar farther at the big discount store.
 
 Related:
-
-#idea 
