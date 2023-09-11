@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/cards/all-we-see-is-what-we-look-for/"}
 ---
 
-## All We See Is What We Look For
+#🌱Seedling 
 
 There is a risk when we focus on an injustice, real or imagined, that all we see is that injustice. We begin to see the world through a lens of injustice. Every input is perceived as being rooted in injustice.
 
