@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/what-message-are-we-sending-our-kids/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 For years now I have been saying that how we talk about problems, and the way we say is matters. That's why I got started as a writer.
 
 I want to work toward getting to the root of problems that are causing so much disunity in our society today. It’s why I believe it is critical that we get beyond symptoms and look for causes.
