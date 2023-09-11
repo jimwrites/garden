@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/the-seen-and-the-unseen/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 I think it’s dishonest to try and talk about race in this country without acknowledging the legacy of racism that has haunted our nation. The situation that people of color in the US are in today is, at least in part, the result of mistreatment and unconscionable policies that were in place in years past. I say in part because I don’t think you can totally absolve current government policies or personal behavior for their part in contributing to the current state of affairs.
 
 And while you may not be able to point to specific laws or systems that are themselves racist, that doesn’t mean that the sins of our fathers don’t continue to haunt us. But I believe those sins are largely overshadowed by a system that has created a semi-permanent victim class. It is a living example of what French economist Frederic Bastiat referred to when he wrote about the seen and the unseen.
