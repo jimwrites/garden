@@ -13,8 +13,7 @@ Related:
 #🌱Seedling 
 
 Source: 4 Disciplines of Execution
-Tags: #Seed
-Keywords: [[Cards/personal growth\|personal growth]], [[Cards/Stoicism\|Stoicism]]
+Keywords: [[Cards/personal growth\|personal growth]], [[Cards/Stoicism\|Stoicism]], [[Cards/Leadership\|Leadership]]
 Related:  [[Cards/Prioritize Important Tasks\|Prioritize Important Tasks]]
 
 >...you start by selecting one goal where you would most like to achieve breakthrough results...
