@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/justice-or-social-justicce/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 I’ve been working on reconciling the ideas of Justice and Social Justice, and how these terms are used in todays world. A lot of times people use the terms interchangeably, but they really are two different ideas, based on two very different premises. And when we get the two confused we can find ourselves supporting ideas we may not completely agree with.
 
 Social Justice in the Bible
