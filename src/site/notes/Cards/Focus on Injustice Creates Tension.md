@@ -7,8 +7,9 @@ When we see injustice in everything, it creates an unnecessary tension between g
 A focus on injustice is the result of a Separation world view.
 
 Source: Eight Big Reasons Critical Race Theory Is Terrible for Dealing With Racism - NewDiscourses.com
-Tags: #Seed
 Keywords: [[Cards/Race\|Race]], [[Cards/victimhood\|victimhood]], [[Cards/Justice\|Justice]], [[Cards/Equity\|Equity]]
-Related: [[Cards/All We See Is What We Look For\|All We See Is What We Look For]], [[Focusing on the positive makes it harder to notice the negative\|Focusing on the positive makes it harder to notice the negative]], [[Inbox/Only Two World Views\|2 world views]]
+Related: [[Cards/All We See Is What We Look For\|All We See Is What We Look For]], [[Focusing on the positive makes it harder to notice the negative\|Focusing on the positive makes it harder to notice the negative]], [[Cards/Only Two World Views\|2 world views]]
 
 >...it makes all of our relationships and social systems extremely fragile and tense, ready to explode over a highly divisive issue...
+
+#🌱Seedling 
