@@ -2,6 +2,9 @@
 {"dg-publish":true,"permalink":"/cards/i-disagree-with-what-you-wrote-and-that-s-ok/"}
 ---
 
+#🌲Evergreen 
+#posted 
+
 Jordon Peterson once said "In order to be able to think, you  have to risk being offensive."
 
 I don't want to get into a discussion on the virtues and vices of Peterson, but sometimes the man made some good points. He's also a good example of what this article is about; in order to have any important discussions, you have to be willing to face disagreement.
