@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/cards/difference-between-labor-and-people/"}
 ---
 
-## Difference between Labor and People
+#🌿Budding
 
 There seems to be a growing misunderstanding of labor provided to a business, and the people within the business. It shows up in forums where people are complaining about all of the things their employer is not doing for them, and how they feel no sense of loyalty, to the point that some of them are actively sabotaging the business.
 
