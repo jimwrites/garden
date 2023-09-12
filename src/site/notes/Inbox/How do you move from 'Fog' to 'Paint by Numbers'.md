@@ -3,7 +3,6 @@
 ---
 
 
-#🌱Seedling 
 
 ### The Fog
 The 'Fog' is where you don't know where your going and you don't know how to get there.
