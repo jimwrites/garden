@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/cards/you-are-god-s-gift-to-the-world/"}
 ---
 
+#🌿Budding 
+
 [[Cards/identity\|identity]]
 This isn't meant to be an ego boost. It is about the idea that God created you with a unique personality, with a unique set of gifts. He intends you to use who you are to make a positive difference in the world.
 
