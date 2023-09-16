@@ -8,4 +8,8 @@ When the Supreme Court makes a ruling we don't like, it is because the justices 
 
 Very little time is spent addressing if they made the legally correct decision.
 
-Related: [[Omnivore/Omni_Processed/How The Supreme Court Just Destroyed Christianity In America - by Ossiana Tepfenhart - Jul, 2023 ...\|How The Supreme Court Just Destroyed Christianity In America - by Ossiana Tepfenhart - Jul, 2023 ...]]
+We do the same with churches when they preach a version of the gospel that we disagree with.
+
+Related: [[Omnivore/Omni_Processed/How The Supreme Court Just Destroyed Christianity In America - by Ossiana Tepfenhart - Jul, 2023 ...\|How The Supreme Court Just Destroyed Christianity In America - by Ossiana Tepfenhart - Jul, 2023 ...]], [[Cards/Intollerance of Symbols\|Intollerance of Symbols]]
+
+#🌱Seedling 
