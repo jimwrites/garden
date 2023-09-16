@@ -5,27 +5,26 @@
 #🌱Seedling 
 
 -   Character
--   Self-Control
 -   Integrity
+-   Inability not only to do no wrong, but to even conceive of doing it
+-   Self-Control
+-   Live simply, not in the least like the rich
 -   Manliness
 -   Reverence for the divine
 -   Generosity
--   Inability not only to do no wrong, but to even conceive of doing it
--   Live simply, not in the least like the rich
--   Hire good teachers
-    -   Consider the cost as money well spent
+-   [[Inbox/Hire good teachers\|Hire good teachers]]
 -   Put up with discomfort and not make demands
--   Do my own work
+-   [[Inbox/Do my own work\|Do my own work]]
 -   Mind my own business
 -   Don't make time for slanderers
 -   Don't waste time on nonsense
 -   Be willing to hear unwelcome truths
--   Practice philosophy
+-   [[Inbox/Practice philosophy\|Practice philosophy]]
 -   Work on training and disciplining my character
--   Read attentively
--   Don't fall for smooth talkers
+-   [[Inbox/Read attentively\|Read attentively]]
+-   [[Inbox/Don't fall for smooth talkers\|Don't fall for smooth talkers]]
 -   Unvarying reliability
--   Pay attention to nothing but the truth (_logos_)
+-   [[Inbox/Pay attention to nothing but the truth\|Pay attention to nothing but the truth]] (_logos_)
 -   Be the same in all circumstances
 -   Accept favors from friends without losing self-respect, or appearing ungrateful
 -   Kindness
@@ -40,8 +39,8 @@
 -   Maintain optimism in adversity
 -   Do my job without whining
 -   Be compassionate
--   Have unwavering adherence to a decision once I have reached it.
--   Listen to anyone that can contribute to the public good
+-   [[Inbox/Have unwavering adherence to a decision once I have reached it\|Have unwavering adherence to a decision once I have reached it]]
+-   [[Inbox/Listen to anyone that can contribute to the public good\|Listen to anyone that can contribute to the public good]]
 
 [[Cards/Stoicism\|Stoicism]]
 [[Cards/Marcus Aurelius\|Marcus Aurelius]]
