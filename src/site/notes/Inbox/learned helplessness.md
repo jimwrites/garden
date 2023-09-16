@@ -6,4 +6,5 @@
 #🌱Seedling 
 
 
+
 Related: [[Cards/victimhood\|victim mindset]]
